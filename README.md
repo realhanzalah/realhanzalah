@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @realhanzalah
+- 👋 Hi, I’m Hanzalah
 - 👀 I’m interested in ... developing my skills at an internship or similar work experience opportunities whilst I'm currently at university studying Computer Science.
 - 📫 How to reach me ... you can reach me at: hanzalahnaguthane@gmail.com, and Hanzalah Naguthane on LinkedIn: https://www.linkedin.com/in/hanzalahnag/
 
