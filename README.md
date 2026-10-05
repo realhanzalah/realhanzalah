@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hanzalah
-- 👀 I’m interested in ... developing my skills at an internship or similar work experience opportunities whilst I'm currently at university studying Computer Science.
+- 👀 I’m interested in engineering, problem-solving and AI research
 - 📫 How to reach me ... you can reach me at: hanzalahnaguthane@gmail.com, and Hanzalah Naguthane on LinkedIn: https://www.linkedin.com/in/hanzalahnag/
 
 <!---
